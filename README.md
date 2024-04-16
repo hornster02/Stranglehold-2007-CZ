@@ -1,6 +1,6 @@
 GOG (2024-03)
 <br/>
-Včetně CZ dabingu + videa. Velikost 311MB https://drive.google.com/drive/folders/16ZmZ4zaCfVxE6-Saw8WJjv32huTquSaa
+Velikost 311MB https://drive.google.com/drive/folders/16ZmZ4zaCfVxE6-Saw8WJjv32huTquSaa
 
 Postup
 <br/>
